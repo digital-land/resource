@@ -1,0 +1,1 @@
+Redirected /resource pages
